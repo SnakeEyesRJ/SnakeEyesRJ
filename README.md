@@ -1,4 +1,4 @@
 
 ![SnakeEyesRJ Banner](TWITCH-COVER-2026.png)
 
-## Hi there 👋
+## Hi there, I'm SnakeEyes and i hope the content i shared be useful for someone! Thanks for your visit and leave a feedback, I'm new on GitHub! 👋
